@@ -1,0 +1,1 @@
+fali broj indeksa :P
